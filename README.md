@@ -73,6 +73,6 @@ A data-driven exploration aimed at enhancing crop yield and resource use efficie
 
 **Sindhupriya Kancharla**
 📧 [sindhupriyakancharla04@gmail.com](mailto:sindhupriyakancharla04@gmail.com)
-🔗 [GitHub](https://github.com/KancharlaSindhupriya) • [LinkedIn](https://linkedin.com/in/sindhupriyakancharla)
+🔗 [GitHub](https://github.com/KancharlaSindhupriya) • [LinkedIn](https://www.linkedin.com/in/sindhu-priya-kancharla-0b6666217/)
 
 
